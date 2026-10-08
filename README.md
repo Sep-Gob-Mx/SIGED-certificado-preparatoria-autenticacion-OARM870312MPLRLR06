@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-OARM870312MPLRLR06
+OARM870312MPLRLR06
